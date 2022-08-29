@@ -9,7 +9,7 @@
 
 #### <img src="https://slackmojis.com/emojis/32795-graduation_knuddels/download" width="20"/> Summa Cum Laude graduate of computer engineering w/ a minor in computer science from the American University of Sharjah
 #### <img src="https://emojis.slackmojis.com/emojis/images/1643516557/25961/computer.gif?1643516557" width="20"/> Studying MSc. in Computer Vision at Mohamed Bin Zayed University of Artifical Intelligence
-#### <img src="https://emojis.slackmojis.com/emojis/images/1643515450/14708/community.gif?1643515450" width="20"/> I aim to help people through my studies by working on projects that better humanity
+#### <img src="https://emojis.slackmojis.com/emojis/images/1643515450/14708/community.gif?1643515450" width="30"/> I aim to help people through my studies by working on projects that better humanity
 #### <img src="https://emojis.slackmojis.com/emojis/images/1643515788/18056/reading.gif?1643515788" width="20"/> In my free time, I love to read and draw
 
 
