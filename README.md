@@ -3,7 +3,6 @@
 
 ---
 
-<img align="right" src="https://thumbs.gfycat.com/FreeRealChicken-max-1mb.gif" width="200" />
 
 ## About me
 
